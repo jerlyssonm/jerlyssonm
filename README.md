@@ -1,4 +1,4 @@
-## Oiii eu sou Jerlysson Eduardo, Desenvolvedor Web Full Stack!👋
+## Oiii eu sou Jerlysson Eduardo, Desenvolvedor Full Stack!👋
 
 
 ##
